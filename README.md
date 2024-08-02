@@ -1,0 +1,6 @@
+- 👋 Hola, soy @silverDark88
+- 👀 Estoy interesado en A.I. y Tecnología
+- 🌱 Actualmente estoy aprendiendo japonés
+- 💞️ Busco colaborar en un proyecto con Google, Meta o Apple
+- 📫 Cómo contactarme (mi cuenta de juego, pero funciona igual): michelmpokeongo.2020@outlook.com
+- 😄 Pronombres: El
